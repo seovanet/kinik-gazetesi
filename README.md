@@ -1,0 +1,1 @@
+# kinik-gazetesi
